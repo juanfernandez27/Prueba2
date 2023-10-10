@@ -1,4 +1,1 @@
-# prueba2
-vamos como va
-pulsar 150rr
-este año nos acompaña pero al sgte vendra una unidad mucho mejor pero equipada con siste,a GPS de alta gama 
+quiero que este año no se vaya tan facilmente , quisiera lograr un objetivo mas alla de lo normal y estar muy felix al saber que las ideas que piemso se van a concretar.
